@@ -48,4 +48,4 @@
 
 ---
 
-⭐️ Feel free to explore my projects and connect for collaboration or opportunities!
+⭐️ Feel free to explore my projects and connect for collaboration or opportunities !
